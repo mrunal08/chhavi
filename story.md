@@ -1,0 +1,1 @@
+There was king and queen and lived happily.
